@@ -1,4 +1,4 @@
-hello !! im jazzy (jazmine) or sunday :3 she 14 bi cis
+im jazzy (jazmine) or sunday :3 she 14 bi cis
 
 
   c+h , w2i ect always ok !! PLEASE INTERACT
